@@ -1,1 +1,1 @@
-Rajesh oru nice person.
+Rajesh oru nice per.
